@@ -1,2 +1,2 @@
 تغير حقوق اذكر المصدر:
-[AbnBashar](https://t.me/N_mrod)
+[𝐋7𝐍 «𓆩ᶠᴮᴵ𓆪» ™](https://t.me/g_4_q)
